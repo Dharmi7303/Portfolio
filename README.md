@@ -1,1 +1,1 @@
-# DHarmi Javiya
+# Dharmi Javiya
